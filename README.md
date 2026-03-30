@@ -3,7 +3,7 @@ Literally Nothing.
 
 ## im suck at english
 hehe sorry for rotting your brain with my bad english
-## but i can write japanese well
+## but i can type japanese well
 Q. Why?
 A. huh.
 ## are you kid?
